@@ -1,4 +1,4 @@
-# # PRIVACY NOTICE
+ # PRIVACY NOTICE
 
 Last updated October 22, 2020
 
